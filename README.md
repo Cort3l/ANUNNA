@@ -1,2 +1,2 @@
 # ANUNNA
-I am not using the suggested name. It is corny.
+About me: It is none of your business. 
